@@ -1,5 +1,1 @@
-# Hi there | Dzień dobry 👋
-
-[My website](https://alexanderswebsite.com/en)
-
-**Social links:** [LinkedIn](https://www.linkedin.com/in/okryzhan), [Telegram](https://t.me/SashaKryzh), [Instagram](https://www.instagram.com/sashakryzh/)
+[X (Twitter)](https://x.com/sashakryzh) - [Telegram](https://t.me/oleksandr_channel) - [LinkedIn](https://www.linkedin.com/in/okryzhan)
